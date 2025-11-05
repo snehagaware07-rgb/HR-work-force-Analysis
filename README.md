@@ -62,6 +62,6 @@ Insights help HR teams improve engagement, retention, and diversity planning.
 
 **📬 Contact**
 
-📧 Email: [your email]
+📧 Email:snehagaware07@gmail.com
 
-🔗 LinkedIn: [your LinkedIn profile]
+🔗 LinkedIn: https://www.linkedin.com/in/sneha-gaware
